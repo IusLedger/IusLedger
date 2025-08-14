@@ -5,7 +5,7 @@ Soy abogado con una sólida formación en Derecho Internacional de los Negocios,
 
 ### Conéctate conmigo en: https://linktr.ee/darioecmunoz
 
-![darioecmunoz](https://github.com/user-attachments/assets/f0578926-3a5b-4f64-9376-e45e2169d6c6)
+![darioecmunoz](https://github.com/user-attachments/assets/3ea29df6-6832-488a-9016-a5f16c742e72)
 
 # Acerca de mi:
 Soy abogado con una sólida formación académica y experiencia en los ámbitos jurídicos nacional e internacional. Me he especializado en Derecho Internacional de los Negocios, Derecho Financiero, Bursátil y de Seguros y el emergente Derecho de la Economía Digital.
